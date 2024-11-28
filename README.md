@@ -1,13 +1,14 @@
 # 51hlw
 51黑料网最新地址👋(最新更新时间2024-11-25)
 
-51黑料网官网 https://www.51hlw.vip
+51黑料网官网 https://www.51hlw2.fun
 
-51黑料网备用线路1 https://51hlw1.com
-51黑料网备用线路2 https://51hlw2.com
-51黑料网备用线路3 https://51hlw3.com
+51黑料网备用线路1 https://51hlw9.com
+51黑料网备用线路2 https://51hlw10.com
+51黑料网备用线路3 https://51hlw11.com
+51黑料网备用线路3 https://51hlw12.com
 
-草榴社区永久地址（需科学⬆️网工具） https://www.51hlw.vip
+草榴社区永久地址（需科学⬆️网工具） https://www.51hlw.hlw
 
 网址打不开？？？
 
